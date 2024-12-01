@@ -63,6 +63,6 @@ We are committed to continuous improvement and have exciting plans for the futur
 
 ## Feedback and Support
 
-We value your input! If you have any feedback, suggestions, or encounter any issues, please contact our support team at [2003priyanshusingh@gmail.com](2003priyanshusingh@gmail.com).
+We value your input! If you have any feedback, suggestions, or encounter any issues, please contact our support team at [udaygupta.ph@gmail.com](udaygupta.ph@gmail.com).
 
 Thank you for choosing MockBit. Empower yourself for success in your professional journey!
